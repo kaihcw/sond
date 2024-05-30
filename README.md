@@ -1,6 +1,6 @@
 # 白洁传小说免费阅读
 
-<a href="https://3t3e.com/">>>>>>>>>点/此/进/入/观/看/<<<<<<<<</a>
+<hr/> <a href="https://github.com/kaihcw/xiazai/issues/1">👉👉👉♥♥点此进入♥观看入口👈👉👉</a><hr/>
 
 白洁传小说免费阅读
 还bái，貌似是上了恶当？
